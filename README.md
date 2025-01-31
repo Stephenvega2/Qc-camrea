@@ -1,1 +1,1 @@
-try the quabtum camrea adjust it to you prefed settings
+try the quantum camrea adjust it to you prefed settings
